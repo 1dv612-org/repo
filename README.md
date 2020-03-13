@@ -1,6 +1,6 @@
 # repoooooooooooooaawqessssqwaqawkwwkwwqwewaeqweqqwqqwawwswakqa
 qqqqqqwwqwwwwqwqwwwwweaaqweqweqwewwqwqsqwaaqaaawqasaassswwwqakwzwaszkewwwa
 wwswaaaqsedqwaa
-qwa<<qaw
+qwa<<qaws
 q
 a
